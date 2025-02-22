@@ -6,3 +6,5 @@
 - 🤔 I’m looking for help with ANDROID
 - 📫 How to reach me: @juniormandriva74
 
+- ### My [LINKEDIN](https://www.linkedin.com/in/junior-santos-0586/)
+
